@@ -17,3 +17,6 @@ I used AI to complete last weeks excersise. 10/8 - Anyi Tasong.
 
 
 I used AI to help me with this weeks excersise and help add onto my inst311 homework. 10/21 - Anyi Tasong.
+
+
+AI usage has helped me map out my new schedule to finish out the semester and the year strong. 10/28 - Anyi Tasong. 
