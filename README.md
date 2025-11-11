@@ -22,3 +22,5 @@ I used AI to help me with this weeks excersise and help add onto my inst311 home
 AI usage has helped me map out my new schedule to finish out the semester and the year strong. 10/28 - Anyi Tasong. 
 
 AI usage helped me draft my research paper. 11/4 - Anyi Tasong. 
+
+I used AI to help me with my second research paper, my reflection paper, and resource paper. 11/11 - Anyi Tasong. 
