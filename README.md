@@ -24,3 +24,5 @@ AI usage has helped me map out my new schedule to finish out the semester and th
 AI usage helped me draft my research paper. 11/4 - Anyi Tasong. 
 
 I used AI to help me with my second research paper, my reflection paper, and resource paper. 11/11 - Anyi Tasong. 
+
+I used AI to help with a summary for my LGBTQ class. 11/18 - Anyi Tasong 
