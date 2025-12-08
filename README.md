@@ -28,3 +28,5 @@ I used AI to help me with my second research paper, my reflection paper, and res
 I used AI to help with a summary for my LGBTQ class. 11/18 - Anyi Tasong 
 
 I used AI to find cheaper alternatives. 12/1 - Anyi Tasong
+
+Haven't used AI yet. 12/8 - Anyi Tasong
